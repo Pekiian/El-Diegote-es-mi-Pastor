@@ -1,0 +1,1 @@
+Extensión increíblemente épica que remplaza la palabra "Dios" por "El Diegote". 
